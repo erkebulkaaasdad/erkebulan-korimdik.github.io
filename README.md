@@ -1,1 +1,0 @@
-# erkebulan-korimdik.github.io
